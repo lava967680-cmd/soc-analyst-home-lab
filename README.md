@@ -3,7 +3,7 @@
 **Aspiring SOC Analyst | Splunk SIEM | Security Operations | Remote Work**
 
 📍 Vizianagaram, Andhra Pradesh, India  
-📧 your.email@gmail.com  
+📧 Lava967680@gmail.com  
 💼 [LinkedIn](your-linkedin-url)
 
 About Me
